@@ -5,7 +5,9 @@ haii !! english isn't my native language, so i may make mistakes!! tell me if i'
 
 ⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*
 
-i'm actually a calm person w a low social battery, but i try to adapt to others.
+INFJ 9w1
+
+i'm actually a calm person w a low social battery, but i try to adapt to others, n i'm rlly sweet to talk.
 
 idc abt pronouns, but i prefer she/her
 
