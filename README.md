@@ -7,10 +7,10 @@ haii !! english isn't my native language, so i may make mistakes!! tell me if im
 
 idc abt pronouns, but i prefer she/her
 
-mostly afk...
-
   ⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*
+
+mostly afk...
   
-c+h always allowed i dont bite ^_^
+c+h always allowed i dont bite ^_^ i rlly luv matching cosplays and cuddling with em!!!
 
 sign my ata, ok? ok.
