@@ -3,9 +3,13 @@
 <p align="center">
 haii !! english isn't my native language, so i may make mistakes!! tell me if im wrong.
 
+⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*
+
 idc abt pronouns, but i prefer she/her
 
 mostly afk...
+
+  ⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*
   
 c+h always allowed i dont bite ^_^
 
