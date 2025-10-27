@@ -17,6 +17,8 @@ c+h always allowed i dont bite ^_^ i rlly luv matching cosplays and cuddling wit
 
 sign my ata, ok? ok.
 
-
-
+<div align="center">
+<img width="735" height="420" alt="image" src="https://github.com/user-attachments/assets/4e82bdb6-c08d-43ab-a2a0-c6d43f073840" />
+  </div>
+  
 wip btw
