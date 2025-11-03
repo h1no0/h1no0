@@ -9,7 +9,7 @@ haii !!
 
 INFJ 9w1
 
-i'm actually a calm person w a low social battery, but i try to adapt to others, n i'm rlly sweet to talk.
+my replies may seem cold and dry(sometims..), but im rlly sweet to talk
 
 idc abt pronouns, but i prefer she/her
 
