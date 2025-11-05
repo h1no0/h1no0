@@ -17,7 +17,7 @@ idc abt pronouns, but i prefer she/her
 
 mostly afk...
   
-c+h always allowed i dont bite ^_^ i rlly luv matching cosplayss n cuddling with em!!!
+c+h always allowed i dont bite. i rlly luv matching cosplayss n cuddling with em!!!
 
 sign my ata, ok? ok.
 
