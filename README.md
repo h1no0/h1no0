@@ -7,7 +7,7 @@ haii !!
 
 ⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*⑅୨୧⑅*
 
-INFJ 9w1 flegmatic
+INFJ 9w1 phlegmatic/melancholic
 
 my replies may seem cold and dry(sometims..), but im rlly sweet to talk
 
